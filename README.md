@@ -1,0 +1,1 @@
+# hackintosh-3700x-rog470_i
